@@ -1,4 +1,6 @@
-### Hi there 👋
+### Henlo! (з´⌣`ε)
+
+![](https://i.giphy.com/media/xreCEnteawblu/giphy.webp)
 
 <!--
 **faradienna/faradienna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
